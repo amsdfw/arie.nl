@@ -29,7 +29,8 @@ zoals verhuisdekens, steekkarren, spanbanden en andere attributen. Onze verhuize
 vanzelfsprekend zuinig met je spullen om en zorgen voor vervoer van deur tot deur. 
 
 Is een professionele, betaalbare verhuizing precies wat jij nodig hebt? Bekijk dan snel alle
-informatie over Verhuizing klein en groot
+informatie over 
+[Verhuizing klein en groot](./verhuizing-klein-en-groot.html).
 
 # Marktplaats of veiling vervoer
 
