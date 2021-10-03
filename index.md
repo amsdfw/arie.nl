@@ -14,7 +14,8 @@ Je kunt bij ons terecht voor kleine én grote projecten, op ieder moment van de 
 Wil je meubels laten vervoeren, een fiets, koelkast of een ander groot object? Bij ons kun je op een simpele manier gebruik maken van meubel transport of het laten vervoeren van
 andere objecten die lastig te transporteren zijn voor jou. Het is niet altijd eenvoudig om zelf grote, zware of andere lastige spullen te vervoeren. Ook als je een bijzonder object aanschaft dat met zorg vervoerd dient te worden is professioneel transport een goed idee.
 Gelukkig kun je in al deze gevallen terecht bij Arie.nl. Voor het transport maken wij duidelijke afspraken over het tijdstip van ophalen en afleveren. Het vervoer van jouw goederen wordt uitgevoerd door een professionele koerier en verloopt altijd volgens afspraak. 
-Is meubels laten vervoeren exact wat jij nodig hebt? Bekijk dan snel alle informatie over ons meubel transport
+Is meubels laten vervoeren exact wat jij nodig hebt? Bekijk dan snel alle informatie over ons 
+[meubel transport](./meubel-transport.html).
 
 # Verhuizing klein en groot
 
