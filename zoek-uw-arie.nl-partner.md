@@ -4,8 +4,8 @@ layout: default
 
 # Zoek uw ARIE.NL Partner
 
-Amsterdam
-Rotterdam
+* Amsterdam
+* Rotterdam
 Den Haag
 Utrecht
 Eindhoven
