@@ -70,9 +70,9 @@ keuze kunt maken dit alsnog te verzekeren. 
 
 # Contact
 
-Arie.nl
-06-12502965
-info@arie.nl
-KVK:75688646
-BTW:NL001422205b57 
+* Arie.nl
+* 06-12502965
+* info@arie.nl
+* KVK:75688646
+* BTW:NL001422205b57 
 
