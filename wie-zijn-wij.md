@@ -67,3 +67,12 @@ transport sjouwen, dan valt dat niet onder onze verzekering. Sommige andere zake
 ook niet onder onze verzekering, zoals het vervoer van glas, specifieke apparatuur, dieren of
 etenswaren. Uiteraard stellen we je daarvan voor het transport op de hoogte, zodat jij zelf die
 keuze kunt maken dit alsnog te verzekeren. 
+
+# Contact
+
+Arie.nl
+06-12502965
+info@arie.nl
+KVK:75688646
+BTW:NL001422205b57 
+
