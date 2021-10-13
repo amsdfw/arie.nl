@@ -27,7 +27,7 @@ Heb je een spoed opdracht, wil je je zending op een specifiek tijdstip laten bez
 Wat je wensen ook zijn, wij zorgen er voor dat je op ons kunt rekenen. En dat tegen een zeer betaalbare prijs! 
 Neem contact met ons op voor meer informatie over onze particuliere koeriersdienst en geef door wat je wilt laten vervoeren. Je krijgt direct een gunstig tarief door. 
 
-# Meer weten over Koeriersdienst Arie? 
+# Meer weten over Koeriersdienst Arie.nl? 
 
 Wil je meer weten over de mogelijkheden of heb je vragen over een zending? Neem dan gerust contact op met één van onze medewerkers. 
 Je kunt ons ook inschakelen voor meubel transport, (senioren) verhuizingen en marktplaats- en veiling vervoer.
