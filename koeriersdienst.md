@@ -2,7 +2,7 @@
 layout: default
 ---
 
-# Koeriersdienst Arie staat direct voor je klaar
+# Koeriersdienst Arie.nl staat direct voor je klaar
 
 Zoek je een koeriersdienst voor particulieren en bedrijven in de omgeving Zwolle, Deventer, Rotterdam of Amsterdam? 
 Dan is Arie.nl het koeriersbedrijf waar je op kunt rekenen. Heb je een aankoop gedaan en wil je die laten vervoeren? 
