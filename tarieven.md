@@ -22,5 +22,5 @@ layout: default
 
 * Arie.nl
 * 038- 453 7501
-* 06-12502965(whatsapp oog mogelijk)
+* 06-12502965(whatsapp ook mogelijk)
 * info@arie.nl
