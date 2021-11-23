@@ -19,7 +19,7 @@ Is meubels laten vervoeren exact wat jij nodig hebt? Bekijk dan snel alle inform
 
 # Verhuizing klein en groot
 
-Heb je binnenkort een kleine verhuizing en wil of kan je her vervoer niet met een eigen auto
+Heb je binnenkort een kleine verhuizing en wil of kan je het vervoer niet met een eigen auto
 uitvoeren? Huur dan Arie.nl in en wij zorgen voor professioneel transport op maat. Of het nu
 gaat om een kleine particuliere verhuizing voor bijvoorbeeld studenten of senioren of een
 klein zakelijk transport, wij staan je graag bij om je je meubels op een veilige manier te
