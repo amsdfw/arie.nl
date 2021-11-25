@@ -71,8 +71,9 @@ keuze kunt maken dit alsnog te verzekeren. 
 # Contact
 
 * Arie.nl
+* 038-4537501
 * 06-12502965
-* info@arie.nl
+* arjan@arie.nl
 * KVK:75688646
 * BTW:NL001422205b57 
 
