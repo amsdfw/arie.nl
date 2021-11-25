@@ -14,9 +14,9 @@ layout: default
 
 * Meubel vervoer op basis van kilometer vergoeding of uurtarief
 
-* Verhuizingen vanaf 45 euro ex btw per uur met 1 man en kleine bus
+* Verhuizingen vanaf 40 euro ex btw per uur met 1 man en kleine bus
 
-* Werkzaamheden met Bakwagen en 1 man vanaf 55 ex btw per uur
+* Werkzaamheden met Bakwagen en 1 man vanaf 52,50 ex btw per uur
 
 * Wij staan altijd voor u klaar, vraag snel een eerlijke en heldere offerte aan bij ons:
 
