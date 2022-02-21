@@ -35,10 +35,10 @@ van belang dat je exact doorgeeft wat de bedoeling is, wat er verhuisd dient te 
 je alleen een chauffeur nodig hebt of ook één of meerdere sjouwers. Je krijgt direct een
 bericht terug via Whatsapp met een exacte prijsopgave. Daarbij kun je rekenen op
 transparante, marktconforme prijzen. 
-Bestelwagen en Koerier/Verhuizer 40 euro per uur
-Bakwagen met Laadklep en Koerier/Verhuizer 52,50 euro per uur
-Bestelbus en Koerier/Verhuizer en extra Man/Sjouwhulp 65 per uur
-Bakwagen met Laadklep en Koerier/Verhuizer en extra Man/Sjouwhulp 77,50 euro
+Bestelwagen en Koerier/Verhuizer 52,50 euro per uur
+Bakwagen met Laadklep en Koerier/Verhuizer 65 euro per uur
+Bestelbus en Koerier/Verhuizer en extra Man/Sjouwhulp 85 per uur
+Bakwagen met Laadklep en Koerier/Verhuizer en extra Man/Sjouwhulp 95 euro
 per uur 
 
 Let op: Soms alleen Bestelbus of Bakwagen beschikbaar
