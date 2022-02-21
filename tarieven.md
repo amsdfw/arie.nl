@@ -21,6 +21,5 @@ layout: default
 * Wij staan altijd voor u klaar, vraag snel een eerlijke en heldere offerte aan bij ons:
 
 * Arie.nl
-* 038- 453 7501
 * 06-12502965(whatsapp ook mogelijk)
 * arjan@arie.nl
