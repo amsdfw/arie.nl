@@ -62,7 +62,7 @@ transportorders per week plaatsen. 
 
 Als koerier voor particulieren en bedrijven zijn wij uiteraard verzekerd. Alles wat wij
 vervoeren is dan ook tijdens transport verzekerd tegen diefstal en schade, tot een maximum
-tarief van € 975,- per transport. Laat je ons je meubels of andere goederen voor of na
+tarief van € 500,- per transport. Laat je ons je meubels of andere goederen voor of na
 transport sjouwen, dan valt dat niet onder onze verzekering. Sommige andere zaken vallen
 ook niet onder onze verzekering, zoals het vervoer van glas, specifieke apparatuur, dieren of
 etenswaren. Uiteraard stellen we je daarvan voor het transport op de hoogte, zodat jij zelf die
@@ -71,7 +71,7 @@ keuze kunt maken dit alsnog te verzekeren. 
 # Contact
 
 * Arie.nl
-* 038-4537501
+* 038-785 53 23
 * 06-12502965
 * arjan@arie.nl
 * KVK:75688646
